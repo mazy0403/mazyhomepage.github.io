@@ -1,0 +1,1 @@
+# mazyhomepage.github.io
